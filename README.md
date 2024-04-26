@@ -14,4 +14,6 @@
 
 📖 Juntos, podemos explorar novos horizontes e construir um futuro tecnológico cada vez mais promissor.
 
+Meu add lá no linkedin: https://www.linkedin.com/in/rodrigo-da-silva-carvalho/
+
 Keep learning and coding! 🚀✨
